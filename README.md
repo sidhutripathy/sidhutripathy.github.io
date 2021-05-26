@@ -1,2 +1,0 @@
-# sidhutripathy.github.io
-Blogs
